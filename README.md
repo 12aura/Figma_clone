@@ -1,2 +1,9 @@
 # Figma_clone
-Palak Singh
+
+
+
+
+1. Manshi Singh
+
+2.Palak Singh
+
